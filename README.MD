@@ -1,0 +1,1 @@
+The recipe is chicken breasts covered in seasoning and bread crumbs. Then it is freid until crispy.
